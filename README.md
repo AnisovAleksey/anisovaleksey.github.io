@@ -1,0 +1,1 @@
+# mediktest-privacy-policy
